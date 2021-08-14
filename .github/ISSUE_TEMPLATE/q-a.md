@@ -8,7 +8,9 @@ assignees: moontails
 ---
 
 **Description**
-what would you like to talk about? what's on your mind? briefly jot down your discussion starter. note - unrelated issues will be marked as such and may end up being ignored or deleted.
+lets use github issues if you have any feedback to share with the author or seek clarification or talk about any reasonable topic. 
 
-**Fun fact about you or whatever you wanna share with the rest of the universe!**
-exercise good judgement
+note - unrelated issues will be marked as such and may end up being ignored or deleted.
+
+**Just to make it a bit more interesting - add a fun fact about you or anything you wanna share!**
+please exercise good judgement
