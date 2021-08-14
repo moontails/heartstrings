@@ -1,4 +1,4 @@
-# heartstrings & hope : the tale of two blades
+# heartstrings & hope : a tale of two blades
 
 greetings traveler! 
 
