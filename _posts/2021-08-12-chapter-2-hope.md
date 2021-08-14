@@ -36,6 +36,6 @@ That was a delicate gamble, Lance thought as he landed on the soft patch of snow
 
 Being a rider of time, the blade let him burn time essence: all the life-force. He used this in battle, to achieve superhuman feats. Like *heartstrings* struck his oponent and attached these blue strings to their heart, freezing them in time, which he converted to gain a time-skip. But at the same time he also needed a space-skip. So he had unleashed *hope* to shave off thier time essence to bring him to the training grounds of the Fahdurians. 10 winters ago.
 
-The cost has always been the same. What giveth, also taketh. The blade drained both their life reserves. After all it's *hope* that kills you!
+The cost had always been the same. What giveth, also taketh. The blade drained both their life reserves. After all it's *hope* that kills you!
 
 He still had to find <strong>One</strong>. Unravelling his last act would require a boundless energy source. Something way beyond his reserves. His life now depended on it.
