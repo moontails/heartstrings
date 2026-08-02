@@ -1,1 +1,3 @@
-https://moontails.github.io/blog/
+# Heartstrings and Hope
+
+My WIP first fantasy novel!
